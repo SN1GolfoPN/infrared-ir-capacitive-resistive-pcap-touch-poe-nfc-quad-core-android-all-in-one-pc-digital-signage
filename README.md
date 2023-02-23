@@ -11,3 +11,4 @@ https://we-signage.en.made-in-china.com/product/ROrfDqodwZks/China-32-Inch-Hot-S
 - E-mail: sales1@we-signage.com
 - MP/skype/Wechat: + 86 13071066236
 - Whatsapp: +86 13071066236
+## Modified
